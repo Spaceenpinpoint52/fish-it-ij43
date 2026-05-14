@@ -1,4 +1,4 @@
-#  
+#  rare fish it Script is the best fish it Script, featuring instant win and speed. Safe and powerful for all your needs.
 
 
 
